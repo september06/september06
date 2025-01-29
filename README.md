@@ -9,7 +9,6 @@
 - 🌱 I’m currently learning alot of things at once :C
 - 👯 I’m looking to collaborate on work XD
 - 💬 Ask me about anything ?
-- 📫 How to reach me: email maybe ?
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 📫 How to reach me: email maybe ? you dont have >.<
+- 😄 Pronouns : just amar :)
 
