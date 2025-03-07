@@ -9,6 +9,6 @@
 - 🌱 I’m currently learning alot of things at once :C
 - 👯 I’m looking to collaborate on work XD
 - 💬 Ask me about anything ? dont ask always hungry :| 
-- 📫 How to reach me: linkedin? email maybe? amar164@gmail.com
+- 📫 How to reach me: linkedin?https://www.linkedin.com/in/amar-amer-66a144161/ email maybe? amar164@gmail.com
 - 😄 Pronouns : just amar :)
 
