@@ -8,7 +8,7 @@
 - 🔭 I’m currently working on my life :D
 - 🌱 I’m currently learning alot of things at once :C
 - 👯 I’m looking to collaborate on work XD
-- 💬 Ask me about anything ?
-- 📫 How to reach me: email maybe ? you dont have >.<
+- 💬 Ask me about anything ? dont ask always hungry :| 
+- 📫 How to reach me: linkedin? email maybe? amar164@gmail.com
 - 😄 Pronouns : just amar :)
 
